@@ -13,6 +13,3 @@
 ### vc pode entrar em contato comigo por aqui 
 
 https://instagram.com/victoralves_721?igshid=M2RkZGJiMzhjOQ==
-
-
-![](https://images.app.goo.gl/1QfN6wwYKaMb8V2cA)
